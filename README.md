@@ -1,0 +1,3 @@
+Data Analyst 
+
+Etudiante chez OpenClassrooms, je souhaite présenter ici mon travail. Plusieurs projets ont été complété, d'autres suivront..
